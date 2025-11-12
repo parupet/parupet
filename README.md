@@ -18,7 +18,7 @@ I don't care about your opinion on this matter or any other.
 
 ![alt text](https://github.com/parupet/parupet/blob/main/umbrel.png)
 
-You can find more doodles on my bluesky.
+You can find more doodles on my bluesky. You can find my terrible Elin PCC mod (Undertale+Other additions) in my repositories somewhere.
 
 ![alt](https://github.com/parupet/parupet/blob/main/steeth.png)
 
