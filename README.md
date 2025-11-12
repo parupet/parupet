@@ -1,7 +1,28 @@
-Hi. I like sanster.
+If you're from Pony Town: MDNI. Anyway.
+
+![alt](https://github.com/parupet/parupet/blob/main/gwetuabaddieshnj.png)
+
+Hi. I like Sanster.
 
 ![alt text](https://github.com/parupet/parupet/blob/main/echodate2.png)
 
+Also, I like to doodle.
+
+![alt text](https://github.com/parupet/parupet/blob/main/gays.png)
+
+My kinlist because I am cringe and I am free: WD Gaster (~2-3 AU flavors); Sans (~1-2 AU flavors); Snake Fruit Cookie; Xue Yang; Majora.
+
+![alt](https://github.com/parupet/parupet/blob/main/uhwhut2.png)
+
+I don't care about your opinion on this matter or any other.
+
+![alt text](https://github.com/parupet/parupet/blob/main/umbrel.png)
+
+You can find more doodles on my bluesky.
+
+![alt](https://github.com/parupet/parupet/blob/main/steeth.png)
+
+Bye ✌️
 <!--
 **parupet/parupet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
