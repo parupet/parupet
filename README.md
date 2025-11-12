@@ -1,4 +1,6 @@
-## Hi there 👋
+Hi. I like sanster.
+
+![alt text](https://github.com/parupet/parupet/blob/main/echodate2.png)
 
 <!--
 **parupet/parupet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
