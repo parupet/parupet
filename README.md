@@ -1,5 +1,7 @@
 If you're from Pony Town: MDNI. Also I rarely talk unless spoken to first. Sitting nearby doesn't count. 
 
+![alt](https://github.com/parupet/parupet/blob/main/weddingcaketopperwithcake.png)
+
 Anyway.
 
 ![alt](https://github.com/parupet/parupet/blob/main/gwetuabaddieshnj.png)
