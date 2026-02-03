@@ -1,4 +1,5 @@
 If you're from Pony Town: MDNI. Also I rarely talk unless spoken to first. Sitting nearby doesn't count. 
+Sometimes I'm tabbed out. Also in regards to whispers I oftentimes don't notice them for a while... lol.
 
 ![alt](https://github.com/parupet/parupet/blob/main/weddingcaketopperwithcake.png)
 
