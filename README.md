@@ -22,7 +22,7 @@ My kinlist because I am cringe and I am free: WD Gaster (~2-3 AU flavors); Sans 
 
 ![alt](https://github.com/parupet/parupet/blob/main/uhwhut2.png)
 
-I don't care about your opinion on this matter or any other.
+I don't care about your opinion on this matter or any other. I don't know you and I don't care to know you, therefore your opinion goes to the recycling bin to be lost at sea.
 
 ![alt text](https://github.com/parupet/parupet/blob/main/umbrel.png)
 
