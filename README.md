@@ -10,7 +10,7 @@ Anyway.
 
 ![alt](https://github.com/parupet/parupet/blob/main/gwetuabaddieshnj.png)
 
-Hi. I like Sanster.
+Hi. I like Sanster. If you view them as family, that's your problem. I, do not.
 
 ![alt text](https://github.com/parupet/parupet/blob/main/echodate2.png)
 
