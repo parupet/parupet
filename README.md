@@ -18,7 +18,7 @@ Also, I like to doodle.
 
 ![alt text](https://github.com/parupet/parupet/blob/main/gays.png)
 
-My kinlist because I am cringe and I am free: WD Gaster (~2-3 AU flavors); Sans (~1-2 AU flavors); Snake Fruit Cookie; Xue Yang; Majora.
+My kinlist because I am cringe and I am free: WD Gaster (~2-3 AU flavors); Sans (~1-2 AU flavors); Snake Fruit Cookie; Xue Yang; Majora. I luv kintwins. We can build an army of "us"!
 
 ![alt](https://github.com/parupet/parupet/blob/main/uhwhut2.png)
 
