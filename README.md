@@ -1,6 +1,6 @@
 If you're from Pony Town: MDNI. Also I rarely talk unless spoken to first. Sitting nearby doesn't count. 
 Sometimes I'm tabbed out. Also in regards to whispers I oftentimes don't notice them for a while... lol. 
-And while I do roleplay, I do not roleplay on ponytown.
+And while I do roleplay, I do not roleplay on ponytown. My roleplay blog is https://transorbital-niche.tumblr.com/
 
 While I keep up with its story, I have little interest in Deltarune. DR ponies approaching me as if I am "their" Gaster in any sentiment is an automatic block. I have an itchy trigger finger and a blocklist a mile long.
 
