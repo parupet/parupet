@@ -5,7 +5,7 @@ And while I do roleplay, I do not roleplay on ponytown. My roleplay blog is http
 To extend the 'DNI' - if you unironically use the Nazi word 'degenerate' to refer to other people, or to art, kindly fuck off.
 And if you're fanpol / an anti / American Feelings Yakuza / culturally puritan / Evangelist at heart / etc, we will not get along.
 
-While I keep up with its story, I have little interest in Deltarune. DR ponies approaching me as if I am "their" Gaster in any sentiment is an automatic block. I have an itchy trigger finger and a blocklist a mile long.
+While I keep up with its story, I have little interest in Deltarune. DR ponies approaching me as if I am "their" Gaster in any sentiment is an automatic block. I have an itchy trigger finger and a blocklist a mile long. Or I did until I unblocked every single person on my 11 page block list while feeling particularly spicy. Hi :3
 
 Lastly, I am weary about Sans ponies. Sanster might be my OTP but I do not know who you are. Who are you. Go away.
 
