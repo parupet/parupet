@@ -2,6 +2,9 @@ If you're from Pony Town: MDNI. Also I rarely talk unless spoken to first. Sitti
 Sometimes I'm tabbed out. Also in regards to whispers I oftentimes don't notice them for a while... lol. 
 And while I do roleplay, I do not roleplay on ponytown. My roleplay blog is https://transorbital-niche.tumblr.com/
 
+To extend the 'DNI' - if you unironically use the Nazi word 'degenerate' to refer to other people, or to art, kindly fuck off.
+And if you're fanpol / an anti / American Feelings Yakuza / culturally puritan / Evangelist at heart / etc, we will not get along.
+
 While I keep up with its story, I have little interest in Deltarune. DR ponies approaching me as if I am "their" Gaster in any sentiment is an automatic block. I have an itchy trigger finger and a blocklist a mile long.
 
 Lastly, I am weary about Sans ponies. Sanster might be my OTP but I do not know who you are. Who are you. Go away.
