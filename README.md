@@ -2,7 +2,7 @@ Every time someone bitches about my ship I make an even worse AU with blackjack 
 
 If you're from Pony Town: MDNI. Also I rarely talk unless spoken to first. Sitting nearby doesn't count. 
 Sometimes I'm tabbed out. Also in regards to whispers I oftentimes don't notice them for a while... lol. 
-And while I do roleplay, I do not roleplay on ponytown. My roleplay blog is https://transorbital-niche.tumblr.com/
+And while I do roleplay, I do not roleplay on ponytown. My roleplay blog is https://transorbital-niche.tumblr.com/ - coincidentally, all of the information for my AU numpties is present on said blog.
 
 To extend the 'DNI' - if you unironically use the Nazi word 'degenerate' to refer to other people, or to art, kindly fuck off.
 And if you're fanpol / an anti / American Feelings Yakuza / culturally puritan / Evangelist at heart / etc, we will not get along.
